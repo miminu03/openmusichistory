@@ -2,6 +2,8 @@
 
 Italian composer
 
+I used to like Rachmaninoff's Corelli variations. Then, I had the opportunity to introduce a less well-known composer in this lecture, and I naturally wanted to know more about Corelli, so I chose it.
+
 ## List of Important Works
 
 | Year | Works | YouTube |
